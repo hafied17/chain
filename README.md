@@ -1,0 +1,2 @@
+# chain
+kepuasan yang sebenarnya
